@@ -1,0 +1,1 @@
+# Data for *Peer pressure: Conformity outweighs Reciprocity in Social Anxiety*
